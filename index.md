@@ -1,13 +1,13 @@
 ![image](photoxin.jpg)
 # Xin Liu
-**+86 18253918156
-276000
-Shandong
-China**
+**+86 18253918156**
+**276000**
+**Shandong**
+**China**
+
 # EMPLOYMENT
 ### Bank accountant
 2014 - 2022
-
 
 # STUDY
 ### Master's degree at FOM
