@@ -1,4 +1,4 @@
-![image](photo)
+![image](photo.jpg)
 # Xin Liu
 **+86 18253918156
 276000
